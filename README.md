@@ -4,4 +4,4 @@
 - 💞️ I’m looking to receive community help or feedback for my LGBTQuify project.
 - 📫 How to reach me: my Discord.
 - 😄 Pronouns: He/Him, They/Them, She/Her - i dont really care :3
-- ⚡ Fun fact: I’m building my own tracking gloves based on Lucid VR!
+- ⚡ Fun fact: Nothing here yet
